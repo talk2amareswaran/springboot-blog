@@ -9,3 +9,5 @@ Please subscribe my YouTube channel - https://www.youtube.com/c/Talk2Amareswaran
 Please like my Facebook page - https://www.facebook.com/talk2amareswaran
 
 Please do join my Facebook group - https://www.facebook.com/groups/271796230307847/
+
+My Blog - https://talk2amareswaran-tutorial.blogspot.com
